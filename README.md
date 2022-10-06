@@ -1,0 +1,3 @@
+- hi im gambitgastronome
+- i make music
+- currently making fnf mods
